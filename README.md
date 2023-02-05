@@ -43,7 +43,7 @@ Engineering, layout, supply, construction and configuration of the SCADA (superv
 
 Learn more on our website: www.operibus.org 👈👈 🚀
 
-📝 Frequently Asked Questions GM Holding:
+📝 Frequently Asked Questions OPERIBUS:
 F.A.Q.
 
 Why invest in OPERIBUS?
